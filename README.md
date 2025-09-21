@@ -34,6 +34,5 @@ Ready to amplifly your visibility authentically wand with ease? I'd be Too Geek'
 - **AI-powered marketing workflows**
 - **Social media strategy that feels authentic**
 
-[📧 Email me](mailto:crystal@toogeekd.com) | [💼 Connect on LinkedIn](https://www.linkedin.com/in/crystaltoogeekd)
+[📧 Email me](mailto:crystal@toogeekd.com) | [💼 Connect on LinkedIn](https://www.linkedin.com/in/crystaltoogeekd) | [📞 Book a Vibe Check](https://www.toogeekd.comlinkedin.com)
 
-*Book a Vibe Check @ TooGeekd.com and let's make your visibility journey feel as natural as your passion for helping others! 😌*
